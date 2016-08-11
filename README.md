@@ -1,2 +1,1 @@
-# xiaminily.github.io
-夏敏的博客
+好好学习，天天向上
